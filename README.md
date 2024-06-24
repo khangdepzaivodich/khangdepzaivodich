@@ -1,4 +1,4 @@
-# 👋 Hey there, I'm @khangdepzaivodich!
+# 👋 Hey there, I'm Khang
 
 Here's a snapshot of who I am and what I do:
 
